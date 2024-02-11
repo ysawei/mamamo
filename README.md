@@ -1,2 +1,2 @@
 # clybgrmvr
-.
+DO NOT RESELL
